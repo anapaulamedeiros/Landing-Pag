@@ -1,1 +1,1 @@
-Link do projeto [acessar aqui]( https://anapaulamedeiros.github.io/x/)
+Link do projeto [acessar aqui]( https://anapaulamedeiros.github.io/Landing-Pag/)
